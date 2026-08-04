@@ -1,4 +1,4 @@
-# Letramentos Acadêmicos I
+# LETRAMENTOS ACADÊMICOS I
 * **CURSO:** TADS IFPR-Foz 
 * **PROFESSOR:** Márcia Palharini Pezzini
 * **SEMESTRE:** 4º
