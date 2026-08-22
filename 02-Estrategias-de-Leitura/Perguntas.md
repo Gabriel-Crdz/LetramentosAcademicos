@@ -1,3 +1,5 @@
+## Perguntas para discussão
+
 1. Por que a leitura é considerada uma habilidade indispensável à vida social segundo o texto?
 
 2. Quais são os principais tipos de leitura apresentados no texto e quais finalidades cada um deles possui?
