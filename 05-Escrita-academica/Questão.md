@@ -1,3 +1,0 @@
-Segundo Marconi e Lakatos (2010), a leitura torna-se proveitosa quando contempla alguns aspectos específicos, entre eles a síntese.
-
-Demonstre sua compreensão do texto por meio da elaboração de um **resumo crítico**, reconstruindo, de forma articulada, as ideias identificadas e decompostas durante a análise. Para isso, mantenha a sequência lógica do pensamento desenvolvido pelos autores, preservando as ideias centrais do texto e utilizando suas próprias palavras.
