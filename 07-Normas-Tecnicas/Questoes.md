@@ -1,4 +1,4 @@
-## Questões a responder
+## Questões a responder sobre Normas do IFPR 
 
 A partir da leitura e pesquisa do livro normas de apresentação de trabalhos do IFPR você deve responder as questões indicadas abaixo. Essa é uma atividade de leitura dirigida, portanto você deve seguir buscando as respostas conforme o texto vai se desenvolvendo. As respostas serão encontradas uma após a outra sem grandes dificuldades. Seu trabalho é compreender o conceito ali colocado e reescrevê-lo de forma clara e coerente com o que foi solicitado na questão.  
 
